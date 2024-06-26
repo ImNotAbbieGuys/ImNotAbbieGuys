@@ -4,8 +4,12 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
 - 😄 Pronouns: ... ???
-- ⚡ Fun fact: ... i draw and animate you can find me on tumblr twitter YouTube!!![Untitled169](https://github.com/ImNotAbbieGuys/ImNotAbbieGuys/assets/166914448/a9d82026-de0f-4a13-bab3-63a062629822)
-![tumblr_687d53d5cd5c6870dab07127b9a83d9d_6b546622_1280](https://github.com/ImNotAbbieGuys/ImNotAbbieGuys/assets/166914448/db57d0d3-3827-4196-ba84-0047819c018c)
+- ⚡ Fun fact: ... i draw and animate you can find me on tumblr twitter YouTube!!![Untitled169]  
+
+https://github.com/ImNotAbbieGuys/ImNotAbbieGuys/assets/166914448/8b1f80c3-694b-4739-8ac2-948f6d04bbf4
+
+![Untitled139_20240622104732](https://github.com/ImNotAbbieGuys/ImNotAbbieGuys/assets/166914448/f8e11aee-9746-4d48-8202-55ced7e8d58d)
+
 
 
 <!---
