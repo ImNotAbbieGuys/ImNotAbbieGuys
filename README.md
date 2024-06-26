@@ -1,3 +1,4 @@
+![Untitled169](https://github.com/ImNotAbbieGuys/ImNotAbbieGuys/assets/166914448/4f0d15be-f52f-4f7c-9fc6-061524e6a677)
 - 👋 Hi, I’m @ImNotAbbieGuys
 - 👀 I’m interested in ... art
 - 🌱 I’m currently learning ... animation
